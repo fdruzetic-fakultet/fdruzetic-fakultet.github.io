@@ -1,0 +1,1 @@
+Projekt iz Blockchain aplikacija 
